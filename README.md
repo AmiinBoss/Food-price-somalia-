@@ -87,7 +87,7 @@ Somalia’s food markets are characterized by rising and unstable prices, especi
 
 ## 🤝 Contact
 
-For questions, suggestions, or collaboration, feel free to open an issue or reach out via \[your email or LinkedIn].
+For questions, suggestions, or collaboration, feel free to open an issue or reach out via my linkedin profile (https://www.linkedin.com/in/mohamed-abdullahi-kasim-12b9a732a/).
 
 ---
 
